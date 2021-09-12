@@ -1,0 +1,2 @@
+# Nate
+Bitcoin trading 📉
